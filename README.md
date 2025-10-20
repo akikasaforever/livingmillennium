@@ -12,4 +12,4 @@ My pjsk ID: - 405351868827807746 (EN) Feel free to add ^q^!!!!!
 
 Basic DNIs are : homophobia , transphobia , racist , ship wars !!
 
-I like drawing , making card edits , and chatting w ppl ＼⁠(⁠^⁠o⁠^⁠)⁠／
+I like drawing , making card edits , and chatting w ppl (⁠ ⁠◜⁠‿⁠◝⁠ ⁠)⁠♡
